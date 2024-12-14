@@ -4,9 +4,9 @@ const tzTpFBhzCPzSJkF$$tqPinxzG=tuPwzLcfUFYA$OraugvjxN;function SOFOA$d$vsKUMwKV
 
 // GIFTED-TECH@2024
 
+"50941878122"
 
 
-
-
+".bot"
 
 
